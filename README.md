@@ -1,4 +1,4 @@
-### Hi there, I'm Rogers. Future Computing Scientist and father of two boys
+### Hi there, I'm Rogers. Computer Scientist and dad of two boys
 
 
 ### My path through programming
